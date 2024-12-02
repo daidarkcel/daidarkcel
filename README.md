@@ -1,6 +1,6 @@
 - @daidarkcel . self-proclaimed enigma of sorts. maybe they know what they're doing or they don't. but they have faith. and that's all that matters.
 social media: 
-IG: @loccen
+IG: @loccccen
 TWT: @corsadia
 DIS: @corsadia
 SC: zekekiah/afrogothzekekiah
